@@ -94,7 +94,7 @@ mas profissionais que sabem usar IA com estratégia ocupam mais espaço.**
 
 📧 Email: bocaguitar2@hotmail.com  
 📱 WhatsApp: 71 99270-2823  
-🌐 LinkedIn: [(coloque aqui)  ](https://www.linkedin.com/in/carlos-soares-junior/)
+🌐 LinkedIn: https://www.linkedin.com/in/carlos-soares-junior/
 
 ---
 
