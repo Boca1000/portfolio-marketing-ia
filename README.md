@@ -1,4 +1,4 @@
-<h1 align="center">🚀 Carlos Boca</h1>
+<h1 align="center">🚀 Carlos Junior</h1>
 <h3 align="center">Marketing Digital | Inteligência Artificial | Estratégia </h3>
 
 <p align="center">
